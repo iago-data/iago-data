@@ -43,9 +43,8 @@ Modelos que reduzem tempo de entrega e padronizam documentos.
 
 ## 📫 Como me encontrar
 
-- **LinkedIn:** *adicione seu link aqui*  
-- **E-mail profissional:** *adicione aqui*  
-- **YouTube (em breve):** Altus Protection / Altus SST 🎥  
+- **LinkedIn:** (https://www.linkedin.com/in/iago-pereira-de-sousa/)
+- **E-mail profissional:** iagofuncao@gmail.com
 
 ---
 
