@@ -8,7 +8,8 @@ Profissional de Segurança do Trabalho com experiência em prevenção, análise
 
 ## 🔥 Sobre mim
 
-- 👷 Técnico de Segurança do Trabalho atuando em redes de varejo  
+- 👷 Técnico de Segurança do Trabalho
+- 👨🏽‍🏫 Instrutor de Treinamento em Segurança do Trabalho
 - 🚒 Brigadista  
 - 📊 Desenvolvendo dashboards em Power BI com dados nacionais e corporativos  
 - 🤖 Explorando IA para automações e projetos de segurança  
